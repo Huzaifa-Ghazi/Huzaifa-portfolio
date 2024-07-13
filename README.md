@@ -19,10 +19,14 @@
 - Monitoring e-commerce platforms and marketplaces to identify opportunities, assess logistics & competition, and understand customer preferences.
 - Continuously tracking product prices and fluctuations to determine the best buying and selling strategies and timeframes for maximum profitability.
 - Evaluating potential risks such as market volatility,changes in policies, or supplier issues, and developing systems to mitigate them
+
+  
   **ASSISTANT BUSINESS DEVELOPMENT EXECUTIVE @ SOHOBOY (_2022 - 2023_)**
 - Identify and pursue business opportunities through market research, lead generation, and client outreach, while maintaining accurate CRM records.
 - Cultivate client relationships by presenting tailored proposals, conducting meetings, and gathering feedback, collaborating with internal teams for seamless support.
 - Achieve sales targets, monitor industry trends, and provide regular reports on business development activities to contribute to revenue growth and market expansion
+
+  
   **AMAZON VIRTUAL ASSISTANT @ Amazon Pro Experts (_2021 - 2022_)**
 - Conducted thorough product hunting, research, and analysis to identify profitable opportunities
 - Expertly sourced products, evaluated profitability and implemented budget strategies to maximize returns on investment and optimize cash flow.
